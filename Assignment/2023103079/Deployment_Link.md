@@ -1,1 +1,1 @@
-
+https://placepilot.lovable.app
